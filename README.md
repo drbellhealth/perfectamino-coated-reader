@@ -1,1 +1,0 @@
-# perfectamino-coated-reader
